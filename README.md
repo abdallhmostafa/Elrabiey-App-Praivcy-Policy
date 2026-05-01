@@ -1,1 +1,1 @@
-# Elrabiey-App-Praivcy-Policy
+Praivcy
